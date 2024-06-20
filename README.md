@@ -1,0 +1,1 @@
+Welcome to my personal website, where I intend to share stuff that don't seem to fit anywhere else.
